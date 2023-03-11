@@ -1,5 +1,6 @@
 # Meetups
-**[Student MeetUp](https://www.linkedin.com/company/80359681/admin/)** ; **Janani TV**. 
+**Janani TV**. 
+**[Student MeetUp](https://www.linkedin.com/company/80359681/admin/)** ; **Refer My LinkedIn Post on the Meetup conducted**
 
 **I Conduct Student Meetups to enrich them with knowledge**
 I share my real time experience on 
